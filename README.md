@@ -8,7 +8,7 @@
 
 Description.
 
-> **Title:**  / **Featuring:** 
+> **Title:** Breed of Astarte / **Featuring:** MOTHNODE
 
 > **Production:**  / **Lyrics:** 
 
