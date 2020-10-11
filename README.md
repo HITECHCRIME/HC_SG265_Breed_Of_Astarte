@@ -10,7 +10,7 @@ Description.
 
 > **Title:** Breed of Astarte / **Featuring:** MOTHNODE
 
-> **Production:** X / **Lyrics:** 
+> **Production:** X / **Lyrics:** MOTHNODE
 
 > **Beat:**
 
